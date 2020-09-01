@@ -1,0 +1,4 @@
+- Favorite things
+  - Bright copper kettles
+  - Warm woolen mittens
+  - Whiskers on kittens
