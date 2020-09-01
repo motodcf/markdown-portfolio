@@ -1,1 +1,1 @@
-![Camper picture](https://photos.app.goo.gl/4ygQrLB64TZMoYjw9)
+![Camper picture](https://photos.google.com/share/AF1QipNaEtXjH6GrBDl_pXPYx-J5xCmyvKnujCdOe4IOO21-kU5MBFiobvJA9IORIHYL8w/photo/AF1QipNnvZ3PJ-hX9KmVqmxenpkUBDvUd_lqMbEA3oI-?key=YWJON3dvMW9nNTlSMHVvUU5vYmZaZVZBSl9Sejh3)
